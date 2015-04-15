@@ -1,3 +1,0 @@
-# Git
-jmdfsglknlkg
-hmfdsklhmsd;fh
